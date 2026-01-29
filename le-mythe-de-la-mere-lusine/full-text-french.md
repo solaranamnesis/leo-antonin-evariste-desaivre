@@ -136,7 +136,83 @@ Hélius, comtesse de Flandre, était une belle inconnue que Baudouin avait renco
 
 *) Cf. la légende de la fondation d'Aix-la-Chapelle. (Note à la fin de l'introduction.)
 
-...
+Le mariage de Geoffroy d'Anjou rappelle tellement celui de son descendant, Henri 2 Plantagenet, qu'il est évident que l'auteur du poème sur Richard Cœur-de-Lion qui l'attribue au père de son héros (Henri 2) n'a fait que changer le nom de l'époux ; qu'on en juge plutôt par la citation que M. Faligan emprunte à Jehan de Fordun.*
+
+*) _Scotichronicon cum suppl._, in-fol., editum, Edinburghi, 1752, d'après Ernest Faligan, L. C., 3, 4, 5.
+
+« Un certain Geoffroy, comte d'Anjou, voulant contracter mariage, fit chercher par des messagers une femme de la plus grande beauté, leur recommandant de n'avoir pas le moindre souci de sa famille et de ses parents, ni davantage de son extraction, si par ses attraits corporels elle devait satisfaire son aveugle passion. Laquelle femme ayant été trouvée et s'étant présentée à lui avec le désir de lui plaire, il s'unit à elle par un mariage précipité. »
+
+« La comtesse d'Anjou allait rarement à l'église et alors c'était à grand'peine qu'elle y restât pendant la messe jusqu'à la consécration. La chose ayant fini par être remarquée, son époux la fit garder dans l'église par quatre soldats. Mais elle, ayant rejeté le manteau par lequel elle était tenue, s'envola par une fenêtre à la vue de tous les assistants et ne reparut plus jamais. »
+
+Comme on le voit, il ne manque que l'épisode du vaisseau pour que les deux aventures soient identiques.
+
+Si la nature de la comtesse d'Anjou, si facile à confondre avec la _fée_ qu'avait épousée Henri 2 Plantagenet, pouvait laisser quelque doute, il n'en serait plus de même pour la _fée véritable_ qu'avait épousée le comte de Toulouse.* Même aversion de cette dame pour les églises et surtout pour le saint sacrifice de la messe, et même fuite par la fenêtre lorsqu'elle est retenue de force pendant l'office divin.*
+
+*) Voir ci-dessus.
+
+*) Ernest Faligan, L. C., p. 17. On pourrait nous reprocher d'employer le mot _incube_ au lieu et place de celui de _succube_ qui est le terme propre aux diables femelles. Nous n'avons fait que suivre l'exemple des auteurs cités et de beaucoup d'autres.
+
+## 4.
+
+Le peuple ne voyait d'ailleurs aucune différence entre toutes ces alliances. Chacune d'elles devait, à son avis, procréer une lignée d'êtres misérables, cruels pour leurs vassaux et sans respect pour les liens de la famille.
+
+« Ceux-là sont les enfants de _Mélusine_, les parents de Merlin et de la femme de _Bauldouyn, comte de Flandres_, ensemble aultres qui sont descendus des _esperits succubes et incubes_, comme scaiz de ceulx _qui se jactent_ d'être descendus de fayerie que malheur suit en celuy pays de Poictou.* »
+
+*) J. Thenaud. _Le triomphe des vertus._ Pressac, _Essai bibliographique_, p. 105, 106.
+
+Les chroniqueurs Anglais et Ecossais du 13e et du 14e siècle regardaient les désordres des Plantagenets comme une conséquence de leur origine.* Eux-mêmes, si l'on s'en rapporte à ces auteurs, se croyaient en lutte contre la fatalité à la façon des héros antiques. « Ce n'est chose étonnante, font-ils dire à Richard cœur de lion, si provenant d'une telle souche, mes frères et moi nous harcelons et nous tourmentons les uns les autres comme des gens issus du diable et devant retourner à lui.* »
+
+*) Ernest Faligan, L. C., 1, 2.
+
+*) Ernest Faligan, L. C., p. 56. Geoffroy la grand dent, a peut-être éprouvé un sentiment pareil. Comment expliquer son cri de guerre : _Non est Deus_ en plein 13e siècle.
+
+La divulgation d'une alliance presque oubliée sur le continent, n'était plus cependant qu'une manifestation de la haine vouée aux envahisseurs par les populations de la Grande Bretagne.* Un sentiment analogue semble avoir été éprouvé par les vassaux des comtes de Flandres et de Toulouse à l'égard des familles de leurs suzerains. Si ailleurs ces prétendus mariages restèrent inaperçus cela serait peut-être à la louange des seigneurs. Il est vrai de dire pourtant que si les sujets des Lusignans ne songèrent point à leur reprocher leur origine, ceux-ci n'en ont pas moins cru aux conséquences fatales du mariage de Raymondin.
+
+*) Ernest Faligan, L. C., 12.
+
+Il eut fallu sans doute peu de princes semblables à Geoffroy la grand dent pour que Mélusine ne redevînt un suppôt de l'Enfer. La mémoire de ce farouche guerrier paraît avoir beaucoup gagné à sa lutte contre saint Louis. Il s'y était montré le champion des pays d'outre Loire contre l'invasion des Français. La guerre des Albigeois à peine terminée venait de réveiller l'antagonisme du Nord et du Midi, Geoffroy devenait en quelque sorte un héros national. Le peuple dut aussi lui pardonner aisément d'avoir tourmenté des moines qu'il n'aimait guère.
+
+L'antiquité fournirait des exemples sans nombre de fantaisies généalogiques analogues à celles des Lusignans. Il n'est point étonnant que l'alliance des fées soit la dernière manifestation de cette tendance, fort politique d'ailleurs, des grandes familles à se chercher des ancêtres en dehors de l'humanité. Elles étaient devenues les uniques représentants de la religion primitive et le monothéisme chrétien ne permettait guère d'aussi extravagantes conceptions.
+
+Assez tardivement quelques seigneurs songèrent à se rattacher à la famille de David.* On avait bien eu aussi de prétendus fils d'Énée, tels que Francus, Brutus et Belgius, soi-disant appelés à fonder autant de nationalités différentes plus ou moins en rapport avec leurs noms, mais ces bizarres inventions n'avaient plus leur raison d'être, personne ne croyait à ces audacieuses fictions.
+
+*) Les Lévis, par exemple.
+
+Saint-Maxire, 16 août 1882.
+
+---
+
+### Note.
+
+_D'un prodigieux amour de Charlemagne envers une femme._
+
+... François Pétrarque ... discourant en une épître son voyage de France et Allemagne, nous raconte que passant par la ville d'Aix, il apprit de quelques prêtres une histoire prodigieuse _qu'ils tenaient de main en main pour très véritable_, qui était que Charles-le-Grand après avoir conquesté plusieurs pays, s'esperdit de telle façon en l'amour d'une simple femme, que mettant tout honneur et réputation en arrière il oublia non seulement les affaires de son royaume, mais aussi le soin de sa propre personne, au grand déplaisir de chacun, étant seulement attentif à courtiser cette dame, laquelle par bonheur commença à s'aliter d'une grosse maladie qui lui apporta la mort, dont les princes et grands seigneurs furent fort réjouis, espérant que par cette mort Charles reprendrait comme devant et ses esprits et les affaires du royaume en mains.
+
+Il se vit tellement infatué de cet amour, qu'encore chérissait-il ce cadavre, l'embrassant, baisant, accolant de la même façon que devant, et au lieu de prêter l'oreille aux légations qui lui survenaient, il l'entretenait de mille bages, comme s'il eût été plein de vie. Ce corps commençait non seulement à mal sentir, mais aussi se tournait en putréfaction, et néanmoins, il n'y avait aucun de ses favoris qui lui en osât parler, dont advint que l'archevêque Turpin mieux avisé que les autres pensa que telle chose ne pouvait être advenue sans quelque sorcellerie. Au moyen de quoi, épiant un jour l'heure que le roi s'était absenté de la chambre, commença de fouiller le corps de toutes parts, finalement trouva dans sa bouche, au-dessus de sa langue, un anneau qu'il lui ôta. Le jour même Charlemagne retournant sur ses premières brisées, se trouva fort étonné de voir une carcasse aussi puante. Par quoi comme s'il se fût réveillé d'un profond sommeil, commande qu'on l'ensevelisse promptement. Ce qui fut fait ; mais en contre-échange de cette folie, il tourna tous ses pensements vers l'archevêque porteur de cet anneau, ne pouvait être sans lui et le suivait en tous les endroits. Quoi voyant ce sage prélat et craignant que cet anneau ne tombât en mains de quelque autre, le jeta en un lac prochain de la ville. Depuis lequel temps on dit que ce roi se trouva si épris de l'amour du lieu qu'il ne désempara de la ville d'Aix, où il bâtit un palais et un monastère en l'un desquels il parfit le reste de ses jours et en l'autre voulut être enseveli. Ordonnant par son testament que tous les empereurs de Rome eussent à se faire sacrer premièrement en ce lieu. --- Petrarca. _Epistolæ familiares._ (Lib. 1., cap. 3). --- Etienne Pasquier. _Recherches_, 6., 33. Cf. Dippoldt _Karl der Gross_, p. 121. --- _Veillées Allemandes_ de Grimm. Traduction L'Héritier, t. 2., p. 153. --- _L'anneau du lac voisin d'Aachen_ (Aix-la-Chapelle).
+
+Le journal _le Temps_ a reproduit cette légende dans son n° du 28 août 1882, in _La vie à Paris_ (Chronique hebdomadaire de M. Jules Claretie). On en trouve une curieuse variante dans le n° du 1er septembre suivant, à la fin d'un autre article de M. Claretie. Son correspondant anonyme l'avait extraite de la chronique latine manuscrite de Brenwald, dernier prévôt du chapitre d'Embrach (Zurich). Cf. _Veillées Allemandes_, 2., p. 155, Scheuchzer. _Itiner. Alpina_, 3., 381, etc., etc.
+
+Charlemagne étant à Zurich, logé dans la maison appelée Zumloch,* ordonna d'ériger une colonne sur la place où les saints martyrs Félix et Régula avaient été décapités et d'y suspendre une cloche d'où pendrait un cordon. Puis il fit publier que quiconque demanderait justice eût à sonner à cette cloche pendant que l'empereur serait à dîner, avec promesse qu'il se lèverait pour connaître et juger la cause.
+
+*) Au trou.
+
+On entendit un jour la cloche, un page est dépêché pour savoir qui demande justice et revient sans avoir vu personne, --- ce qui se répète par trois fois. L'empereur très émerveillé, ordonna à quelques personnes de se cacher dans le voisinage de la colonne et de faire bonne garde. Un moment après arrive un grand serpent qui tire le cordon et fait sonner la cloche. Le fait est rapporté à Charlemagne, qui se lève précipitamment de table en disant : Gens ou bêtes, n'importe, je dois la justice à tous mes sujets, sans dictinction.
+
+Arrivé devant la colonne, il trouve, en effet, le serpent qui s'incline respectueusement devant Sa Majesté impériale pour lui rendre hommage et prend ensuite le chemin de la Limath. Le monarque le suit avec toute sa cour et ne tarde pas à découvrir un énorme crapaud qui s'était emparé du trou où le serpent se retirait et déposait ses œufs Justice fut promptement rendue ; le crapaud fut arraché du domicile dont il s'était emparé, condamné au feu et exécuté sur place.
+
+Peu de jours après ce mémorable jugement, le serpent entra dans la salle où l'empereur était à dîner, et, après avoir fait une profonde révérence, il s'élance sur la table, découvre un riche bocal, y laisse tomber une pierre précieuse et se retire non sans avoir réitéré son inclination accoutumée.
+
+D'autant plus frappé de ce prodige qu'il arrivait dans un lieu teint du sang des martyrs, le pieux empereur y fit construire une église appelée Wasserkirch,* et donna comme un gage d'amour la pierre précieuse à l'impératrice. Or, cette pierre avait la propriété d'un philtre, car aussitôt que l'impératrice l'eut en sa possession, son mari ne pouvait plus la quitter. Etait-il obligé de s'absenter ? il tombait dans une profonde tristesse. L'impératrice découvrit le secret et dans sa dernière maladie, elle cacha cette pierre sous sa langue, de peur qu'elle ne vînt à tomber entre les mains d'une autre femme qui, captivant ainsi l'empereur, lui ferait oublier sa première épouse. L'impératrice dûment embaumée, fut ensevelie, et la pierre avec elle, mais bientôt Charlemagne, fit tirer son corps du tombeau, et pendant dix-huit ans le mena avec lui dans tous ses voyages.
+
+*) Ou _Eglise de l'Eau_, ce nom s'explique mieux dans la version des _Veillées Allemandes_, le serpent conduit l'empereur sur le _rivage d'un étang_ où un gros crapaud était établi dans son nid et sur ses œufs.
+
+Un des courtisans ayant découvert le mystère, fouille le corps de l'impératrice, trouve le précieux joyau sous sa langue, et s'en rend maître ; incontinent, l'empereur ressent pour lui la même passion que lui avait inspirée sa défunte épouse et ne peut plus vivre sans ce gentilhomme. Celui-ci ennuyé de ne pouvoir quitter le monarque et fatigué sans doute du poids de sa faveur,* jette un jour la pierre dans un endroit marécageux, remarquable par une source d'eau chaude, d'où il ne fut plus possible de la retirer.
+
+*) Dans la version plus rationnelle des _Veillées Allemandes_, le courtisan laisse tomber par _mégarde_ la précieuse pierre dans une source d'eau chaude d'où on ne peut la retirer.
+
+Charlemagne conçoit alors pour cette place la tendresse qu'il avait eue pour sa femme et pour le chevalier, et, en preuve de son attachement, il y fit bâtir la ville d'Aix-la-Chapelle. Il y fonde une superbe église et y dote richement un chapitre de chanoines qui établit une fraternité perpétuelle avec le chapitre de Zurich.
+
+---
 
 # Première Partie. --- Le Livre des Lusignans.
 
