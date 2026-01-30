@@ -216,6 +216,121 @@ Charlemagne conçoit alors pour cette place la tendresse qu'il avait eue pour sa
 
 # Première Partie. --- Le Livre des Lusignans.
 
+## Chapitre 1er. --- Origines de la légende de Mélusine.
+
+Et, par la lerme de Vendosme!  
+Je croy que ce n'est que fantosme.  
+Ne la vy-je pas en son baing?  
+Je n'en estoie pas moult loing,  
+Par le pertuis de l'uis, oyl,  
+De la teste jusqu'au nombril,  
+Femme estoit moult belle et gente,  
+Mais au dessoubz estoit serpente;  
+Serpente, voire vraiement:  
+Queue avoit burlée d'argent  
+Et d'asur, dont se débatoit  
+Tant que l'eau toute troubloit.  
+(**Couldrette**, 40e chap.)
+
+**Sommaire** : L'histoire et l'épopée, les mythes et les rhapsodies. Le moyen âge et les traditions de races.
+
+La fontaine de l'oppidum celtique et sa fée. Fondation de Lusignan par Lucinius, _mater Lusinia_, d'où la _mère Lusine_. Conquête barbare. Les Lusignans, _mater Lusinianorum_.
+
+### 1\. 
+
+Les grands peuples de l'antiquité nous ont transmis en des poèmes immortels le secret de leur origine, l'épopée finit où commence l'histoire, elle seule nous fait assister à la genèse des nations.
+
+On ne saurait lui demander ni de froides appréciations, ni des récits exacts, et cependant les plus anciennes annales ne nous léguèrent point des tableaux aussi fidèles des mœurs et des croyances religieuses. Dans son cadre immense, elle résume la vie d'une race, s'assimile toutes ses traditions et lui assigne sa destinée ; l'histoire ne connaît plus ces entraînements inspirés, elle ne rayonne pas au-delà des faits, son unique but est de les étudier dans leurs conséquences et leur logique enchaînement.
+
+Toutefois il ne faudrait pas croire qu'Hésiode ou même Homère nous ait livré les mythes sacrés de la Grèce dans toute leur pureté native. Leurs poèmes correspondent à une époque relativement récente de l'humanité, une longue élaboration a précédé leur avènement. Avant eux les chants de rhapsodes inconnus avaient déjà préparé plus d'une substitution, de nouvelles divinités succédaient aux anciennes, Zeus détrônait Chronos et foudroyait les Titans.
+
+L'idée religieuse cessant d'être exclusivement naturaliste, s'incarnait en des personnalités nombreuses et changeantes que des attributs communs reliaient encore au type originel ; mais à côté de l'ancien Dieu symbolisant seul l'une des forces de la nature, on en voyait surgir tout un groupe, les puissantes épaules d'Atlas gémissaient sous le poids des hôtes du ciel.*
+
+*) Voir M. Michel Bréal. _Le mythe de Cacus._
+
+La fondation des diverses nationalités Helléniques avait produit une véritable invasion de héros et de demi-dieux ; les anciens peuples croyaient se glorifier eux-mêmes en vouant leurs grands hommes à l'apothéose. On fit en l'honneur de plusieurs de ces déités nouvelles des emprunts aux mythes les plus divers et leur fonds légendaire s'accrut encore d'éléments de formation plus récente, éclos sous un autre ciel, loin de la mère-patrie, au sein d'une civilisation déjà plus avancée.
+
+Nos sociétés modernes ont eu aussi leur âge héroïque, il apparaît dans les chants des troubadours, avec ses mœurs, ses traditions, ses aspirations et ses douleurs patriotiques, tout aussi bien au moins que les temps fabuleux de la Grèce dans les immortelles rhapsodies d'Homère. La poésie naît des larmes et jamais encore on n'avait vu tant de ruines amoncelées. La chute de l'empire d'Occident, les luttes de Charlemagne, la conquête de Byzance et la délivrance du saint Sépulcre, offraient l'imposante grandeur des anciens récits.
+
+La création des nouveaux idiomes fut fatale à ces premiers essais et nous priva d'une véritable épopée. Il fallut traduire des livres que personne ne comprenait plus et les rajeunir pour les sauver.
+
+Les romans de chevalerie naquirent de cette transformation, ils conservèrent certains mythes qui, comme celui de Mélusine, se liaient intimement à l'histoire fabuleuse de leurs héros. Ces tardifs souvenirs de la religion des aïeux consacraient le pouvoir de beaucoup d'illustres familles en les plaçant sous le patronage de divinités toujours respectées malgré l'avènement du christianisme, les peuples qu'elles étaient appelées à gouverner aimaient à reconnaître les enfants des dieux et à croire à une mission providentielle.* Ce rôle privilégié flattait l'ambition des princes, tout en mettant entre leurs mains un puissant moyen d'action, ils virent un précieux gage d'avenir dans la légende de leur origine et la gardèrent avec un soin jaloux ; restait à fondre les anciennes croyances avec les nouvelles, le peuple et les trouvères s'en étaient déjà chargés. C'est ainsi que paraît s'être formé près de nous le livre des Lusignans.
+
+*) J. Grimm.
+
+Les traditions de cette famille se confondent avec celles du Poitou, le roman de Jehan d'Arras offre donc des ressources précieuses pour l'étude de nos anciens mythes ; malheureusement, comme les poèmes du vieil Homère, il marque le terme ultime d'une longue série de métamorphoses.
+
+Au moment où le secrétaire de Jehan de Berry réunit les fragments épars de sa prétendue histoire, Mélusine représente tout ce qui reste encore du vieux paganisme national, elle _résume toute la faérie_, comme l'a si bien dit avant nous M. Félix Herbet.* Cette concentration d'attributs n'est point l'œuvre du romancier, ses précurseurs --- et nous prouverons qu'il en eut beaucoup --- ne firent que la constater, nous en avons pour preuves de vieilles traditions poitevines fort indépendantes de son récit et dont la haute antiquité ne saurait faire un doute, où la fusion des mythes est déjà très évidente. En réalité, l'_alma mater Lusianorum_ ne fut tout d'abord qu'une simple fée gauloise, tout le reste de sa légende résulta de la lente assimilation d'éléments qui lui furent étrangers au début. Humble divinité agreste, elle régnait sur le rocher où les Lusignans vinrent bâtir leur forteresse, ils prirent son nom et son culte, en retour elle partagea leur brillante destinée, et bientôt le génie tutélaire des puissants barons usurpa le domaine des anciens dieux.
+
+*) Félix Herbet. _Le roman de Mélusine_, in _Revue de l'Aunis, etc._ Niort, Clouzot, année 1869, p. 296-313.
+
+### 2\.
+
+La ville de Lusignan paraît porter un vocable romain : Lucinius ou Licinius,* dont hérita la famille du chef qui vint s'y établir lors de la grande invasion ; une désignation latine ne saurait être le fait d'un barbare, et l'on sait que les noms de lieux subsistent toujours comme d'immuables témoignages du passé.
+
+*) Feu M. Cardin paraît avoir le premier signalé cette étymologie.
+
+Un château était construit par Hugues de Lusignan, dit le Bien-Aimé, dès le milieu du 10e siècle, réédifié par ses descendants, il conserva une grande importance stratégique jusqu'à la fin des guerres de religion.
+
+On a pu supposer, non sans quelque raison, que le poste féodal avait remplacé un camp fixe de l'époque romaine, peut-être même les Gaulois avaient-ils déjà établi un oppidum sur le promontoire escarpé si bien protégé par la Vonne. Cette succession de forteresses d'âges différents est assez fréquente, les lieux d'un abord difficile s'imposant toujours à la défense avant l'invention des armes à feu.
+
+Le château de Lusignan fut démoli en 1575, après avoir soutenu un long siège contre les troupes du duc de Montpensier. A cette époque, une fontaine consacrée à Mélusine coulait encore dans l'enceinte de l'une des tours ; c'est à cette modeste source que la fée poitevine a dû son illustre destinée.
+
+Le culte des fontaines fut cher à nos aïeux, leurs fées gauloises étaient sœurs des nymphes de la Grèce et de Rome, les compagnons de Lucinius purent donc prendre pour génie tutélaire de la nouvelle ville une divinité autochthone que le peuple vaincu honorait déjà de ses offrandes et de ses prières ; restait à lui donner un nom, ils lui imposèrent celui de leur capitaine, et la nouvelle Egérie devint _mater Lucinia, la mère Lusine._*
+
+Le mythe en était là sans doute quand les barbares envahirent la Gaule romaine, ils acceptèrent sans peine à leur tour une divinité très voisine des leurs et ne tardèrent pas à la gratifier de quelques-uns des attributs des dieux de la Gaule et de la Germanie. Un intérêt égoïste rattachait leur chef à la vieille fée dont le vocable romain rappelait le nom glorieux qu'il venait lui-même de conquérir. La déité protectrice de la forteresse devint la patronne de la première famille féodale, elle s'identifia avec sa destinée et la _mère Lusine_ se changea peu à peu en _mère des Lusignans_.
+
+C'est sur ce nom de _mère_, commun à tant de divinités gallo-romaines analogues aux fées celtiques sinon complètement identiques, que repose la fable du mariage de Mélusine avec l'ancêtre légendaire des seigneurs poitevins, et ce prétendu mariage fut l'origine de leur légende héroïque. Mélusine, _mère des Lusignans_, n'appartient pas plus à l'histoire que Vénus, _mère d'Énée_, et que tous les autres dieux ou déesses qui s'unirent à de simples mortels ; c'est une conception purement mythologique, et c'est à cet unique point de vue que nous continuerons de l'étudier.
+
+*) Par un heureux hasard, ce nom se trouvait en rapport avec le rôle capricieux d'une fée toujours à se jouer (_ludere_) dans les ondes ou dans les plaines de l'air. On peut encore rapprocher Lucinia de Luscinia = rossignol. On verra plus loin que Pressine et la Mélusine du Stollenberg attiraient les chevaliers par la douceur de leurs chants, à la façon des sirènes.
+
+## Chapitre 2. --- Les précurseurs de Jehan d'Arras.
+
+Sy veulle Dieu donner aux trespassez sa gloire  
+Et aux vivants force et victoire,  
+Qu'ils la puissent bien maintenir  
+Cy vueil ceste hystoire finir.  
+(**Jehan d'Arras.**)
+
+(_Jongleurs, trouvères et chroniqueurs des Lusignans._)
+
+**Sommaire** : La librairie de la tour de Maubergeon. Chroniques latines antérieures au roman de Mélusine. Jehan, duc de Berry, et Guillaume de Parthenay. Jehan d'Arras et Couldrette.
+
+### 1\.
+
+Jean d'Arras ne nous donne que des renseignements fort incomplets sur les sources où il a puisé les éléments de sa prétendue histoire. Bien que le duc de Berry ait cru devoir le faire venir en Poitou et que sa présence au château de Lusignan avec la petite cour du prince royal soit des plus probables, il semble que les traditions orales du pays ne lui aient fourni qu'un assez maigre contingent.*
+
+*) Ce fut sans doute pendant l'un de ces séjours que Jehan de Berry acheta un jardin à Lusignan, fait confirmé par une charte de la seigneurie de Mauprié citée par M. J. Babinet. _Sec. mem._, 31. Charles-Quint fut invité à visiter Lusignan lors de son passage en France et plus tard Catherine de Médicis en déplora la ruine. Il paraît bien peu probable que Jehan de Berry n'ait jamais habité un château si justement célèbre.
+
+Il ne paraît pas en être ainsi des _chroniques qu'il reçut de son maître et du comte de Salebri_ (Salisbury ? ) _en Angleterre_. A ces documents étaient joints _pluisieurs autres livres_ réunis par ces seigneurs pour faciliter son travail et parmi eux se trouvait très certainement un manuscrit des _Otia imperiala_ de Gervasius de Tilbury* qui déjà avait raconté l'histoire de la serpente Provençale.
+
+*) Jehan d'Arras, édition Brunet, 1854, p. 13-14.
+
+Couldrette, quelques années plus tard, mit en vers le livre des Lusignans et travailla certainement sur les mêmes documents quand il ne se borna pas à suivre le récit de son prédécesseur. Il y a donc lieu de s'arrêter au complément d'informations qu'il nous donne.
+
+Le chapelain trouvère déclare s'être conformé à un _livret_ que Guillaume de Parthenay avait fait faire, ce livret concordait à la fois avec _les deux chroniques latines_ de Maubergeon et avec celle du comte anglais :
+
+Des trois fu vostre livre extrait  
+Ainsi le dist-on et retrait.*
+
+*) _Mellusine._ Ed. Fr. Michel, Niort, 1854, vers 113-4.
+
+Ailleurs Couldrette indique très clairement des vers antérieurs aux siens et ce poème n'était pas perdu puisqu'il le recompose pour complaire aux désirs de son seigneur :
+
+Mais à mon povoir je feray,  
+Se Dieu plaist, tant que le mettray  
+D'autre forme, se j'ay loisir,  
+Qui mieulx vous venra à plaisir,  
+Quand l'autre pas ne vous hette.*
+
+*) _Ibid._, vers 93-97.
+
+En vain dirait-on que le ménestrel de la Gâtine ne parle ainsi que pour faire oublier le roman de Jean d'Arras qu'il se garde bien de citer, eût-il été si osé que de prendre pour compère son vieux maitre, le sire de Parthenay ?
+
+Jehan Bouchet, le célèbre auteur des _Annales d'Aquitaine, 
+
+devait plus tard lui rendre justice, car il déclare avoir vu le roman de Mélusine en _rithme ancienne_ :
+
 ...
 
 # Deuxième Partie. --- Le Mythe de la Mère Lusine.
