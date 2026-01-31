@@ -8,7 +8,7 @@
 
 Mais plus il t'éblouit par mille formes vaines,  
 Plus il faut resserrer l'étreinte de ses chaînes.  
-(J. Delille.)
+(**J. Delille.**)
 
 ## Niort, 1882.
 
@@ -327,9 +327,64 @@ Quand l'autre pas ne vous hette.*
 
 En vain dirait-on que le ménestrel de la Gâtine ne parle ainsi que pour faire oublier le roman de Jean d'Arras qu'il se garde bien de citer, eût-il été si osé que de prendre pour compère son vieux maitre, le sire de Parthenay ?
 
-Jehan Bouchet, le célèbre auteur des _Annales d'Aquitaine, 
+Jehan Bouchet, le célèbre auteur des _Annales d'Aquitaine, devait plus tard lui rendre justice, car il déclare avoir vu le roman de Mélusine en _rithme ancienne_ :
 
-devait plus tard lui rendre justice, car il déclare avoir vu le roman de Mélusine en _rithme ancienne_ :
+« Est à présupposer que dès l'an mil deux cent on commença à faire plusieurs livres en gros et rude langage et en rithme mal taillée et mesurée, pour le passe-temps des princes et aucunes fois par flatterie pour collauder oultre mesure les faits d'aucuns chevaliers, à ce qu'on donnast courage aux jeunes gens de bien faire et de se hardier, _comme ledict roman de Méluzine_, les romans d'Artus de Bretagne, Lancelot du Lac, Tristan l'Aventurier, Ogier le Danois et autres _que j'ai vus en ladicte rithme ancienne_, en aucunes notables librairies ; lesquels ont été depuis rédigés en prose et en langage assez bon, selon le temps qu'ils furent ainsi rédigés, esquels on veoit choses incrédiles et toutes fois délectables à lire. Et à la vérité, c'est un songe que ledict romant de Mélusine, et ne pourroit estre soutenu ainsi qu'il est escript.* »
+
+*) _Annales d'Aquitaine._ Poitiers, 1545, feuillet 66. Citation de M. Herbet.
+
+M. Félix Herbet* se refuse pourtant à croire à l'existence d'un poème relatif à Mélusine antérieur à Couldrette. Jehan Bouchet, dit-il, n'affirme le fait que pour quelques-uns des romans qu'il cite, et suppose seulement l'analogie pour celui de Mélusine. _L'aurait-il vu en vers_, ce serait le poème de Couldrette qui serait tombé sous ses yeux ; en l'examinant à la légère, il a pu le croire antérieur au roman en prose. L'autorité de Couldrette serait elle-même très contestable.
+
+*) Félix Herbet, _le roman de Mélusine_, in _Revue de l'Aunis, etc._ Niort, Clouzot, 1869, p. 302.
+
+Le chapelain dit en effet :
+
+Je le feray à mon povoir ;  
+Mais n'en vueil pas le los avoir,  
+Si los y a car autrefois  
+Elle a été mise en François  
+Et rimée, si comme on compte.  
+Pourquoy ce me seroit à honte  
+De me vanter de cestui fait  
+Puisque autrefois a été fait.*
+
+*) Edition 1854. 5. 85-92.
+
+L'histoire de Mélusine a déjà été mise en vers : _si comme on compte_, mais ce n'est plus qu'une tradition, le nouveau troubadour n'a plus rien en mains, il n'a même jamais vu le poème, et trop peu d'années le séparent de l'époque où le clerc de Jehan de Berry a écrit son roman pour que l'on puisse supposer que ce dernier ait été plus heureux.
+
+Enfin on ne trouve nulle part mention d'un roman en vers de Mélusine, antérieur au livre des Lusignans de Couldrette, et Jehan d'Arras n'a pu recueillir, selon toute apparence, en dehors des légendes qui avaient cours en Poitou, que les chansons informes des jongleurs, etc., etc.*
+
+*) Un ms. en _françois rimé_ du roman de Mélusine est mentionné dans la _Bibliothèque prototypographique des fils du roi Jean_, par J. Barrois, Paris, Treuttel et Wurtz, 1830. Rien ne prouve, il est vrai, qu'il ne s'agisse pas ici du poème de Couldrette.
+
+Ainsi, on le voit, peu s'en faut que M. Herbet n'aille jusqu'à nier l'existence de tout document écrit relatif à Mélusine antérieur à Jehan d'Arras. Il cite cependant la _cronique gardée en l'abbaye du Moutier-Neuf à Poictiers_ qui est authentique et dignement escrite à la main avec brièves et belles observations, mentionnée par Jehan de la Haye, baron des Coulteaux, dans les _Mémoires et recherches de France et de la Gaule aquitanique_.* Les histoires de Lezignem relatées dans les divers inventaires de Jehan de Berry lui sont demeurées inconnues.
+
+*) Paris, Parent, 1581, chap. 3., p. 8.
+
+L'une d'elles cependant avait été récemment indiquée par feu M. Pressac, dans son _Essai bibliographique sur le roman de Mélusine_,* à la suite des manuscrits du roman de Jehan d'Arras, dont elle suit la numérotation (N° 13.), mais il est vrai de dire que le tirage de cet opuscule resta inachevé, les quelques feuilles imprimées ne furent point mises dans le commerce, elles ne purent dès lors parvenir à M. Herbet.
+
+*) Cette savante bibliographie était destinée à servir de complément à la brochure de feu M. Jérémie Babinet qui a pour titre _Mélusine, Geoffroy la grand' dent._ Paris, Techener, 1847, dont elle continue la pagination et le format. (Gustave Bardy.)
+
+Le sous-bibliothécaire de la ville de Poitiers avait trouvé cette chronique mentionnée au nombre des manuscrits ayant appartenu à Jean de France, duc de Berry, comte de Poitou, etc., dans l'inventaire fait après la mort de ce prince,* que donne Le Laboureur dans son édition de l'_histoire de Charles 6_ par le moine de Saint-Denis.*
+
+*) Il n'y eut pas moins de quatre inventaires. (V. L. Delisle, _Cabinet des manuscrits de la bibliothèque nationale._)
+
+*) 2 tomes en un vol. in-folio. Paris, Louis Billaine, 1663.
+
+Le traducteur* a placé en tête du livre des biographies fort abrégées des plus proches parents du malheureux monarque. C'est à l'occasion de celle de Jehan de Berry qu'est reproduit ledit inventaire (p. 83).
+
+*) L'original était en latin.
+
+Le précieux manuscrit figure parmi les livres « trouvez et inventoriez à Mehun (sur-Yèvre), amenez à Paris et prisez illec* ; » il est ainsi désigné : _Un livre de l'Histoire de Lezignem, escrit en latin, de lettre de fourme, bien historié, et au commencement du second feuillet après la première histoire a escrit, sola sed tantùm, couvert de drap de damas rouge, fermant à deux fermoirs de laiton, et tixus de soye, prisé huit livres parisis._
+
+*) Jehan de Berry mourut en 1416.
+
+Il est enfin une autre chronique citée par M. Hiver de Beauvoir dans sa _librairie de Jehan, duc de Berry, au château de Mehun-sur-Yèvre_,* (p. 72), sous le n° 149, et ainsi décrit.
+
+*) In-8°. Auguste Aubry, Paris, 1860.
+
+_Un livre de l'istoire de Lesignen,* en latin de lettre courant, et au commencement du second feuillet, après la première histoire du livre, a escript : Ornatus stans super equum, couvert de cuir vermeil empraint, à deux fermoers de laiton et cinq bouillons sur chascun ais_, 10 livres.
+
+*) Le manuscrit 1482 de la Bibliothèque nationale a pour titre : _La noble histoire de Lusignan_. Ce fut celui peut-être que Jehan d'Arras donna à son roman.
 
 ...
 
